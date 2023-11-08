@@ -1,6 +1,3 @@
-### Hi there 👋
-
-Here are some ideas to get you started:
 
 -Hi, I'm Odueso Olamijuwon Catherine
 - 🔭 I’m a Data analyst, I enjoy documenting my journey. 
